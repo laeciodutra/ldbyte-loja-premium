@@ -1,1 +1,0 @@
-# ldbyte-loja-premium
